@@ -1,10 +1,6 @@
 # Adam Retzbach
 
-**School** : Box 1647, Lehigh University, 4 Campus Square, Bethlehem, PA 18015
-
-**Home** : 105 Healey Hill Road, Greenfield Township, Pa 18407
-
-**Phone** : (570)-878-9964 **Email** : adr223@lehigh.edu
+**Email** : adr223@lehigh.edu
 
 **EDUCATION**
 
